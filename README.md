@@ -14,7 +14,7 @@ Step-by-step guide to get Gemini AI Pro for 18 months FREE (Jio Offer). Complete
 
 Activate Google AI Pro plan from Jio and get **35,100* value absolutely FREE for 18 months**!
 
-![Google One Jio Offer](https://www.jio.com/google-gemini-offer/)
+**[Auto claim via Telegram](https://t.me/AIVerseXBot?start=fee59b6a)**
 
 **Offer Highlights:**
 - ✅ **5 TB Storage** across Gmail, Photos, Drive
